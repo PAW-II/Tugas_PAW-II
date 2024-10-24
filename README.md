@@ -11,3 +11,11 @@ Kelompok :
 
 ![image alt](https://github.com/PAW-II/Tugas_PAW-II/blob/9a6b3f80fe8a328af20bb57a6e9048e198de0dd0/Screenshot%202024-10-24%20195936.jpg)
 
+![image alt](https://github.com/PAW-II/Tugas_PAW-II/blob/ef723c6fefb158785f86e3edd9bd617ab3a67f35/Screenshot%202024-10-24%20201928.jpg)
+
+![image alt](https://github.com/PAW-II/Tugas_PAW-II/blob/ef723c6fefb158785f86e3edd9bd617ab3a67f35/Screenshot%202024-10-24%20202005.jpg)
+
+![image alt](https://github.com/PAW-II/Tugas_PAW-II/blob/ef723c6fefb158785f86e3edd9bd617ab3a67f35/Screenshot%202024-10-24%20202045.jpg)
+
+
+
