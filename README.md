@@ -1,5 +1,5 @@
 # Tugas PAW II
-Kelompok :
+Kelompok team bebas :
 1. Vincentius Fernando (2226240032)
 2. M. Rifqan Zalbina (2226240103)
 3. Steven Tan (2226240065)
